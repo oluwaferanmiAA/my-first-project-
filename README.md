@@ -14,5 +14,5 @@ Building skills beyond the classroom and
 documenting everything publicly.
 
 ## Follow My Journey
-- LinkedIn: (https://www.linkedin.com/in/oluwaferanmi-adeleke-361398382?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+- LinkedIn: (https://www.linkedin.com/in/oluwaferanmi-adeleke-361398382)
 - X/Twitter: (https://x.com/Feran_leke)
